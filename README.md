@@ -8,5 +8,5 @@
 - 💬 Ask me about web and mobile development.
 - 📫 How to reach me: Email -> kemboilovestrant@gmail.com
 - 😄 Pronouns: He
-- ⚡ Fun fact: I like playing video games. Check my channel here -> https://www.youtube.com/channel/UC6Eaankw75PmRnpPn-1hzQQ
+- ⚡ Fun fact: I like making videos. Check my channel here -> https://www.youtube.com/channel/UC6Eaankw75PmRnpPn-1hzQQ
 
